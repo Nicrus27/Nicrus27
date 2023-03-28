@@ -47,6 +47,6 @@ Here are some ideas to get you started:
  
  
  ☎ Contáctame a través de: 
- ✉️ Mail: datasetarg@gmail.com 
+ ✉️ Mail: datasetarg@gmail.com
  📱 Móvil: 11-5597-4161
  ⌨ GitHub: https://github.com/Nicrus27
