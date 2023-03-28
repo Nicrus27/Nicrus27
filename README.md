@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+👉Quien Soy? 
+
+ ✅Hola, mi nombre es Nahuel, soy de Argentina y tengo 26 años. Soy estudiante desde que tengo memoria y mi interés por la tecnología y mi curiosidad autodidacta me trajo hasta acá 💓💻 
